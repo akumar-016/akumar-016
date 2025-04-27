@@ -6,7 +6,8 @@
 
 💞️ I’m looking to collaborate on any type of project as long as i learn something
 
-📫 How to reach me; Personal Mail: kvayushkumarx@gmail.com, Academic Mail: 22ilmg33@uohyd.ac.in, LinkedIn: https://www.linkedin.com/in/akumar016/
+📫 How to reach me; Personal Mail: kvayushkumarx@gmail.com, Academic Mail: 22ilmg33@uohyd.ac.in, 
+LinkedIn: https://www.linkedin.com/in/akumar016/
 
 😄 Pronouns: He/Him
 
