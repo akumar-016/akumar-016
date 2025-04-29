@@ -1,4 +1,4 @@
-👋 Hi, I am @akumar-016
+👋 Hello, I am @akumar-016
 
 👀 I’m interested in deepening my knowledge around integrating computational expertise in biological laboratory processes
 
