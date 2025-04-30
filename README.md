@@ -10,4 +10,4 @@
 
 😄 Pronouns: He/Him
 
-⚡ Fun fact: I am an occasional gamer and love to watch and read anime/manga
+⚡ Fun fact: I am an occasional gamer and love to watch and read anime and manga
