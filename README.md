@@ -2,7 +2,7 @@
 
 👀 I’m interested in deepening my knowledge around integrating computational expertise in biological laboratory processes
 
-🌱 I’m currently learning Systems and Computational Biology
+🌱 I’m currently learning Systems and Computational Biology.
 
 💞️ I’m looking to collaborate on any type of project as long as i learn something
 
