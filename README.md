@@ -4,7 +4,7 @@
 
 🌱 I’m currently learning Systems and Computational Biology
 
-💞️ I’m looking to collaborate on any type of project as long as i learn something
+💞️ I’m looking to collaborate on any type of project as long as i learn something.
 
 📫 How to reach me; Personal Mail: kvayushkumarx@gmail.com, Academic Mail: 22ilmg33@uohyd.ac.in, LinkedIn: https://www.linkedin.com/in/akumar016/
 
